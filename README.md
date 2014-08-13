@@ -14,4 +14,5 @@ We hold these sandwiches to be self evident in the eyes of the Earl of Sandwich.
 | 8oz Condiment** 									| 1sw 					  |
 
 *Wildcard is an unusual item that adds moisture and flavor
+
 **Mayonaisse Provision: 32oz per Sandwich SFER.
